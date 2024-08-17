@@ -1,1 +1,0 @@
-# goto-kyouto5
